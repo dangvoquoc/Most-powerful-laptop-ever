@@ -4,5 +4,8 @@
 <img width="1245" height="666" alt="image" src="https://github.com/user-attachments/assets/1e28e011-ee63-4edf-a549-4cafcd5c9193" />
 <img width="1162" height="492" alt="image" src="https://github.com/user-attachments/assets/937ac506-e3b5-411f-8878-7f7ff0ae9f5c" />
 <img width="1159" height="619" alt="image" src="https://github.com/user-attachments/assets/53004b7c-fd22-4903-bf06-43d9ee1434a5" />
+<img width="938" height="486" alt="image" src="https://github.com/user-attachments/assets/d4b8cf38-7eb8-4d15-b5f9-f26f62c954d9" />
+laptop 6000 usd cua b kia....
+
 
 
